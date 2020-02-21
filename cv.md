@@ -1,5 +1,4 @@
 # **Petrovsky Alexey**
-#### Male
 
 ### *Contact information*
 **Phone number** *+375 (44) 5443665*
